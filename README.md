@@ -1,2 +1,2 @@
-# TProgramming_2025\
+# TProgramming_2025
 Беднякова Виктория Сергеевна
